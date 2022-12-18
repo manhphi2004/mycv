@@ -1,4 +1,0 @@
-#mycv
-# mycv
-# mycv
-# mycv
